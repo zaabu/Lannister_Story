@@ -1,1 +1,1 @@
-A story about the origins of the great house of Westeros.
+An introduction to the members of House Lannister.
